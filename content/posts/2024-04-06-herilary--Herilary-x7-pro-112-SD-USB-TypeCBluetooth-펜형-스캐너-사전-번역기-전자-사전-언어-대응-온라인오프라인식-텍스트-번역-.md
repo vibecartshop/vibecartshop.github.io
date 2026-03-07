@@ -1,11 +1,10 @@
 ---
-title: "herilary  [50~60대 여성추천]  Herilary x7 pro 112 SD USB Type-C&Bluetooth 펜형 스캐너 사전 번역기 전자 사전 언어 대 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: 'herilary  [50~60대 여성추천]  Herilary x7 pro 112 SD USB Type-C&Bluetooth 펜형 스캐너 사전 번역기 전자 사전 언어 대 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-04-06
-slug: "herilary--Herilary-x7-pro-112-SD-USB-TypeCBluetooth-펜형-스캐너-사전-번역기-전자-사전-언어-대응-온라인오프라인식-텍스트-번역-"
-author: Moon
+slug: 'herilary--Herilary-x7-pro-112-SD-USB-TypeCBluetooth-펜형-스캐너-사전-번역기-전자-사전-언어-대응-온라인오프라인식-텍스트-번역-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, herilary]
----
 
 **'herilary'에 빠져보세요: 아름다움과 건강의 만남**
 
