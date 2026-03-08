@@ -3,8 +3,9 @@ title: 'i-pop시거잭블루투스  [50~60대 여성추천]  오토엣지 자동
 date: 2024-04-06
 slug: 'ipop시거잭블루투스--오토엣지-자동차-RGB-LED-풋등-소리반응-무드등-차량-실내등-조명-USB-시거잭-숏타입-USB타입-숏타입-풋등LED-길이-각'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, i-pop시거잭블루투스]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'i-pop시거잭블루투스']
+---
 
 ## i-POP 시거잭 블루투스: 차량 내 음악의 새로운 차원
 

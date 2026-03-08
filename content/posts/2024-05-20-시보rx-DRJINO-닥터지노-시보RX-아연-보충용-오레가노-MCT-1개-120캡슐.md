@@ -1,10 +1,10 @@
-﻿---
-title: "시보rx  [40~60대] DR.JINO 닥터지노 시보RX 아연 보충용 오레가노 MCT, 1개, 120캡슐 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+---
+title: '시보rx  [40~60대] DR.JINO 닥터지노 시보RX 아연 보충용 오레가노 MCT, 1개, 120캡슐 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-05-20
-slug: "시보rx-DRJINO-닥터지노-시보RX-아연-보충용-오레가노-MCT-1개-120캡슐"
-author: Moon
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 시보rx]
+slug: '시보rx-DRJINO-닥터지노-시보RX-아연-보충용-오레가노-MCT-1개-120캡슐'
+author: 'Moon'
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', '시보rx']
 ---
 
 <p data-nosnippet>💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받습니다.</p>
